@@ -3,8 +3,11 @@
 **Unity Developer**
 
 e-mail: svarja00@gmail.com
+
 telegram: @Svarog00
+
 phone: +7 (953) 413-39-56  
+
 Saint-Petersburg, Russia
 
 ---
